@@ -1,3 +1,3 @@
-# lukec11
+# Hi GitHub!
 
-Hi! When GitHub eventually lets me use this repo, It'll show up on my profile!
+I haven't written anything here yet, but it's in the works! See y'all soon!
